@@ -1,0 +1,5 @@
+- 😾 Hi, I’m @fuhrerkitler
+- ✋ I’m interested in nazism (joke)
+- 🇩🇪 I’m currently learning to build botnets
+- 🇵🇱 I’m looking to collaborate on any project y'all want me to collab on 
+- 💀 How to reach me @kitlergang on telegram
